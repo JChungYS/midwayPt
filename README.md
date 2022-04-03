@@ -2,9 +2,26 @@
 
 This is a resources for people in their mid way of their life, people are looking for a change:
 
+## General Advise:
+
+### Positive PSychology -- PERMA -- Positive Emotion, Engagement, Relationship, Meaningful life, moving toward Achievement
+
+### Keep healthy
+
+### Keep using your brain, for mentally challenging activies and learning new things
+
+### Social life development -- Keep hangout with friends, especially those who want the best for you(a Rule of Jordan Peterson, a Psychology Prof. of Toroto University.)
+
+
+
+
+
 ## YouTube:
 
 Fifty plus HK港式50後: https://www.youtube.com/c/FiftyplusHK%E6%B8%AF%E5%BC%8F50%E5%BE%8C/about
+
+
+
 
 
 
