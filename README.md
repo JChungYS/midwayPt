@@ -4,11 +4,11 @@ This is a resources for people in their mid way of their life, people are lookin
 
 ## General Advise:
 
-### Positive PSychology -- PERMA -- Positive Emotion, Engagement, Relationship, Meaningful life, moving toward Achievement
+Positive PSychology -- PERMA -- Positive Emotion, Engagement, Relationship, Meaningful life, moving toward Achievement
 
-### Keep healthy
+Keep healthy
 
-### Keep using your brain, for mentally challenging activies and learning new things
+Keep using your brain, for mentally challenging activies and learning new things
 
 ### Social life development -- Keep hangout with friends, especially those who want the best for you(a Rule of Jordan Peterson, a Psychology Prof. of Toroto University.)
 
@@ -53,7 +53,7 @@ be good resources to search for our calling and seek for alignment of our daily 
 
 
 
-## Coaching for Retire:
+## Coaching for Retireג:
 
 
 
