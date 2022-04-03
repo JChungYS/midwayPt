@@ -10,9 +10,7 @@ Keep healthy
 
 Keep using your brain, for mentally challenging activies and learning new things
 
-### Social life development -- Keep hangout with friends, especially those who want the best for you(a Rule of Jordan Peterson, a Psychology Prof. of Toroto University.)
-
-
+Social life development -- Keep hangout with friends, especially those who want the best for you(a Rule of Jordan Peterson, a Psychology Prof. of Toroto University.)
 
 
 
@@ -45,7 +43,8 @@ may need to slowdown. That's a good spot for them or us to think about the calli
 Dr. Philip Yeung had written a series of books about the calling, some focus in the market place. I think those books can 
 be good resources to search for our calling and seek for alignment of our daily life with the callings.
 
-
+楊錫鏘牧師
+https://youtu.be/9PU9-kqSGxs
 
 
 ## Biblical Studies:
