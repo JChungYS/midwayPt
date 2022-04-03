@@ -53,7 +53,7 @@ be good resources to search for our calling and seek for alignment of our daily 
 
 
 
-## Coaching for Retireג:
+## Coaching for Retired:
 
 
 
