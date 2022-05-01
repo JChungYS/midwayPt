@@ -27,7 +27,7 @@ Social life development -- Keep hangout with friends, especially those who want 
 
 One of the possible contribution in your MWP, is to pass on your experiences, skills, knowledge and attidues to others and the communit MWP. 
 
-Thus, I would love to connect with you and hear the feedback from you. Please visit and connect me: jchung.xyz
+Thus, I would love to connect with you and hear the feedback from you. Please visit jchung.xya and connect with me.
 
 ## YouTube:
 
