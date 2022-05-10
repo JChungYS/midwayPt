@@ -1,5 +1,10 @@
 # midway Pt
 
+Passage of Prodigal Son in Luke and the Passage of Conversation "Peter and Jesu" in John 21
+
+What are the midway points from the pespective of the sons, the father and Peter? 
+
+
 What is midway point mean to you?
 
 Where are you?
@@ -27,11 +32,25 @@ What is the purpose of your life?
 
 What is the meaning of your life?
 
+
+
+# Mission Statement, Vision Statement and the Cost Satement
+
 What is your mission and vision of your life? What are the difference between them?
 
 What is your calling?
 
 How is your daily activities?
+
+
+
+## Cost Statement vs Cross Statement
+
+Matthew 16:24
+
+
+
+
 
 # Core Value
 
@@ -66,7 +85,7 @@ Relevance/Reality
 
 Time Frame
 
-# Whare are the interconnections
+# Where are the interconnections
 
 
 
@@ -80,4 +99,4 @@ Time Frame
 
 
 
-# Acknowelegement: Leadership Matter Course, since 2003 -2018
+Acknowelegement: Leadership Matter Course, since 2003 -2018
